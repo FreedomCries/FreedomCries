@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @FreedomCries
-- 👀 I’m interested in truth of pur existence 
+- 👀 I’m interested in finding more truths of Our Co-existence 
 - 🌱 I’m currently learning CHI/consciousness/CE5/HICE/UAP/UFO
 - 💞️ I’m looking to collaborate on Cognitive Human Interface/UAP/UFO/CE5/HICE
 - 📫 How to reach me ...freedomcries@protonmail.com 
